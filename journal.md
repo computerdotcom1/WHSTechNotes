@@ -29,3 +29,10 @@ That's the thing --- from what I have purely seen myself, A.I can be absolutely 
 
 
 Should probably save it [Reminder]
+
+# DECEMBER 2, 2024  
+
+
+# DECEMBER 16, 2024
+
+Am I looking forward to winter break? Yeah just a little, gives me a geniune break from everything
