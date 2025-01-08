@@ -36,3 +36,11 @@ Should probably save it [Reminder]
 # DECEMBER 16, 2024
 
 Am I looking forward to winter break? Yeah just a little, gives me a geniune break from everything
+
+# JANUARY 8, 2025
+
+What did I enjoy learning about more? --- Just relearning what I used to learn about coding, for sure.
+
+What new would I like to learn? Probably more things to maybe make an art progam in my future for a project to do whenever I'm bored
+
+What certificates would I like to earn? Possibly Python and Unity, simple, but would help me a lot.
