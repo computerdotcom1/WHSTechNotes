@@ -44,3 +44,10 @@ What did I enjoy learning about more? --- Just relearning what I used to learn a
 What new would I like to learn? Probably more things to maybe make an art progam in my future for a project to do whenever I'm bored
 
 What certificates would I like to earn? Possibly Python and Unity, simple, but would help me a lot.
+
+# MARCH 17, 2025
+
+Most of the apps i used over the spring break was my drawing app, my music app, and communication app. The way these apps helped me be entertained was to keep me distracted, and to help my
+creativity flow and such. I haven't really done much else.
+
+We can use an app, like say my social communication app, to what we learned in this class as an example of what coding can get us to. The app I used is a prime example of where learning coding can lead to us in the future if we continue it. It also started off as a video game company, and shifted more into communication overtime, which was frankly more successful..I have no idea where I'm going with this..
